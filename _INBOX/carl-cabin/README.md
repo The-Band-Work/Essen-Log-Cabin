@@ -1,0 +1,2 @@
+- IMG_3102.jpeg
+	- The addition was in 1953 that attached to cabin , its corners are different but good view of northeast corner .
